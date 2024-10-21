@@ -1,3 +1,4 @@
+# Introduction
 Coming to you from Crunchyroll HQ, this is The Anime Effect. Each week, we bring you the latest news and views from the shows you love. It's pop culture through an anime lens.
 
 Today, we have a lot to discuss. We've got the 2024 Anime Awards coming up with more presenters and performers announced this week. And a really awesome anime movie is coming to theaters here pretty soon.
@@ -5,6 +6,8 @@ Today, we have a lot to discuss. We've got the 2024 Anime Awards coming up with 
 Oh, yeah, it is.
 
 It's a good time to be an anime fan, y'all. Welcome to the very first episode. We'll be talking about all this and more to see just how powerful the effect of anime really is.
+
+## Introducing the Hosts
 
 I'm your host, Nick Friedman.
 
@@ -59,11 +62,11 @@ Yeah, we've got like a great mix of that, and I'm essentially living out my chil
 
 Look around though.
 
-Um, so yeah. I'm also like, I'm gonna be the one which, let's just get it out of the way because it's gonna come up a ton. I'm basically the one who is going to find every reason whatsoever to bring up Attack on Titan.
+Um, so yeah. I'm also like, I'm gonna be the one which, let's just get it out of the way because it's gonna come up a ton. I'm basically the one who is going to find every reason whatsoever to bring up [Attack on Titan](https://en.wikipedia.org/wiki/Attack_on_Titan).
 
 They will.
 
-I am obsessed with it, I've got a tattoo of it, my desk is covered in AOT figures. I interviewed Isayama.
+I am obsessed with it, I've got a tattoo of it, my desk is covered in AOT figures. I interviewed [Isayama](https://en.wikipedia.org/wiki/Hajime_Isayama).
 
 Pause it, wait, we gotta pause at that last part. What was that?
 
@@ -135,23 +138,7 @@ I'm happy for everybody to listen. It's gonna be chaotic and I love it.
 
 All right, when we get back, we're gonna talk anime awards updates and get into the news of the week. We'll see you there.
 
-Factor's delicious, ready-to-eat meals make eating better every day easy. Factor gets you ready with pre-prepared, chef-crafted and dietician-approved meals delivered right to your door.
-
-No grocery store.
-
-You don't have to go to a grocery store.
-
-You save gas, you save time making a list.
-
-You'll have over 35 different options every week to choose from including keto, calorie smart, vegan and veggie. What are you waiting for?
-
-I'm not, I'm actually going right now.
-
-Yes, get started today and have a feel-good week of meals ready to go.
-
-Discover a wide variety of easy options for the entire day like breakfast, which is super important for me, midday bites, which is also super important, second breakfast and more.
-
-Head to factormeals.com/anime50 and use code ANIME50 to get 50% off. That is code ANIME50 at factormeals.com/anime50 to get 50% off.
+## News
 
 Welcome back, everybody. Now that you've gotten to know all of us and our various idiosyncrasies. Not yet.
 
@@ -197,15 +184,15 @@ Sasha Banks.
 
 Yeah, it's Monet time, finally.
 
-And the performances, I think this is one of the pieces I'm really excited about. We've got Hiroyuki Sawano and Kota Yamamoto performing the Anime Awards theme song.
+And the performances, I think this is one of the pieces I'm really excited about. We've got [Hiroyuki Sawano](https://en.wikipedia.org/wiki/Hiroyuki_Sawano) and [Kohta Yamamoto](https://en.wikipedia.org/wiki/Kohta_Yamamoto) performing the Anime Awards theme song.
 
 Yes.
 
-We've got Yoasobi.
+We've got [Yoasobi](https://en.wikipedia.org/wiki/Yoasobi).
 
 Yoasobi.
 
-Ahead of their Coachella. Oh, man. And Shingo-2 doing Battle Cry from Samurai Champloo to celebrate the anniversary.
+Ahead of their Coachella. Oh, man. And [Shing02](https://en.wikipedia.org/wiki/Shing02) doing [battlecry](https://open.spotify.com/track/7hzm68uGbxcvQY9FAtpk2s?si=efad5fa8354e462e) from [Samurai Champloo](https://en.wikipedia.org/wiki/Samurai_Champloo) to celebrate the anniversary.
 
 It's gonna be a special night.
 
@@ -227,7 +214,7 @@ Speaking of being amped, this is a horrible segue. We're gonna do really bad seg
 
 We'll get better, you guys.
 
-Nintendo just revealed the best-selling Mario video game of all time, Mario Kart 8 Deluxe. Mario Kart 8 first came out on the Wii U.
+Nintendo just revealed the best-selling Mario video game of all time, [Mario Kart 8 Deluxe](https://www.nintendo.com/us/store/products/mario-kart-8-deluxe-switch/?srsltid=AfmBOooBVkZLlFd4w_xdFrlxh8Gif0ptVCj3B56PYfY5uZZEz_dBPrcV). Mario Kart 8 first came out on the Wii U.
 
 It's been running for like a decade.
 
