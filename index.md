@@ -13,3 +13,6 @@ I’m still considering the approach: I may include full episode transcripts or 
 Thank you for your interest in this project, and I hope it helps you enjoy the world of anime even more!
 
 Thanks
+--------
+#[List of Episodes](Episodes/episode_list.md)
+#[List of Gateways/Guests](Gateways\ -\ Guests/gateway_guest_list.md)
