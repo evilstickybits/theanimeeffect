@@ -1,14 +1,16 @@
 # theanimeeffect
-Transcript and links to anime mentioned in the Podcast.
+Transcript and Links for Anime Mentioned in The Anime Effect Podcast
 
-Inspiration:
+Project Inspiration
 
-I enjoy The Anime Effect by Crunchyroll. The hosts seem like fun people and passionate about anime. The show also introduces me to new animes to watch. 
+I’m a fan of The Anime Effect by Crunchyroll; the hosts’ enthusiasm and knowledge make the podcast both fun and informative. Each episode introduces me to new anime, manga, and games. However, due to a few factors—like pronunciation, occasional slurred speech, or simply listening while driving—it’s sometimes hard to catch the exact names of the titles they discuss.
 
-But, either because I'm driving, the hosts accents when pronouncing Japananese names, over enthusiasm that causes slightly slured speech or language barrier, the names of the anime shows at times are difficult to understand. Or I am driving and dont have time to write down the names of the shows.
+This project is dedicated to solving that. The goal is to create a resource that provides an organized list of anime, games, manga, etc., mentioned in each episode, complete with links to learn more or start watching. Ideally, this will make it easier for other fans to discover and explore the same shows without missing out on recommendations.
 
-I am starting this project with the goal of making it easier for everyone to have a list of the shows, games, manga, etc, and have a link to that content. I also hope that others can also help me understand what animes the hosts are talking about in the podcast, and provide links so others can also enjoy the shows.
+Project Scope
 
-I am unsure if I will be using the whole podcast transcript, or perhaps I will only keep the podcast episode sections and then names/links within those sections.
+I’m still considering the approach: I may include full episode transcripts or focus on timestamped sections with the titles and links only. I also welcome contributions from other fans who want to help identify shows or provide accurate links.
+
+Thank you for your interest in this project, and I hope it helps you enjoy the world of anime even more!
 
 Thanks
