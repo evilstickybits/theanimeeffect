@@ -224,9 +224,9 @@ Which is crazy.
 
 Yeah, there is no contest. Like the greatest Mario Kart game of all time is Mario Kart 8 Deluxe.
 
-I mean, Double Dash is a very close second, but yeah, like it's absolutely insane how they've been able to keep this game alive for so long.
+I mean, [Double Dash](https://en.wikipedia.org/wiki/Mario_Kart:_Double_Dash) is a very close second, but yeah, like it's absolutely insane how they've been able to keep this game alive for so long.
 
-And Nintendo has been like really hitting it out of the park with like million plus sellers on the Switch, which as someone who loves first party Nintendo games, it's really exciting to see like series like Pikmin finally break a mainstream threshold. But specifically to Mario, Mario Kart 8 Deluxe dethrones the original Super Mario Brothers game from 1985.
+And Nintendo has been like really hitting it out of the park with like million plus sellers on the Switch, which as someone who loves first party Nintendo games, it's really exciting to see like series like [Pikmin](https://en.wikipedia.org/wiki/Pikmin) finally break a mainstream threshold. But specifically to Mario, Mario Kart 8 Deluxe dethrones the original [Super Mario Brothers](https://en.wikipedia.org/wiki/Super_Mario_Bros.) game from 1985.
 
 That's actually surprising. Essentially, whenever I play Mario Kart, I just vibe like, I don't care if I lose. Everybody's drifting, I still don't know how to drift.
 
@@ -256,9 +256,9 @@ That's going to end some friendships.
 
 All right. Question for you all. What do you guys think is the least selling Mario game of all time?
 
-And it's not Mario teaches typing because I don't think it.
+And it's not [Mario teaches typing](https://en.wikipedia.org/wiki/Mario_Teaches_Typing) because I don't think it.
 
-Strikers maybe? I mean, I love Strikers.
+[Strikers](https://en.wikipedia.org/wiki/Super_Mario_Strikers) maybe? I mean, I love Strikers.
 
 That would be a shame because Strikers is a great game.
 
@@ -280,7 +280,7 @@ It's also on the GameCube. It's also a sports game.
 
 I don't know. What is it?
 
-Mario Baseball, Mario Superstar Baseball, which is a, it's a great game.
+Mario Baseball, [Mario Superstar Baseball](https://en.wikipedia.org/wiki/Mario_Superstar_Baseball), which is a, it's a great game.
 
 It's a, no, it's a phenomenal game. I wouldn't have guessed that one. Well.
 
@@ -288,7 +288,7 @@ I mean, all these games are good on the, I mean, GameCube had a massive library.
 
 Still need the Mario basketball.
 
-So keeping it in the early nineties on the other side of the console war. Which I'll see the trailer for Knuckles.
+So keeping it in the early nineties on the other side of the console war. Which I'll see the trailer for [Knuckles](https://www.youtube.com/watch?v=1kETt59yn6A).
 
 Oh, listen, listen. Good old Knuckles. Listen.
 
@@ -302,7 +302,7 @@ Just that, just that. No, he is.
 
 I have such an emotional attachment to Knuckles as a character. So like when I was growing up, my cousin and her younger brother used to babysit me and her brother had a Sega, the only game that I would play that you could get me to shut up for. For hours.
 
-Sonic 3 and Knuckles.
+[Sonic and Knuckles](https://en.wikipedia.org/wiki/Sonic_%26_Knuckles).
 
 With Sonic and Knuckles. So Knuckles has been my guy forever. The fact that Edris Elba is the voice of Knuckles makes him double my guy forever.
 
@@ -310,7 +310,7 @@ So when they were like, we're doing a Knuckles show, I was like, you say less. I
 
 I guess I'll go ahead and just slide you that extra five bucks so I can add show time. So I'll just have everything. But no, man, I am super, super excited for this.
 
-I was a little hesitant at first because it's like, you know, everyone's trying to do these like massive cinematic universes. But if you saw Sonic 2 with Knuckles in it, Sonic the Hedgehog 2, the live action, it was so good, man. He kind of stole the show a little bit.
+I was a little hesitant at first because it's like, you know, everyone's trying to do these like massive cinematic universes. But if you saw [Sonic 2](https://en.wikipedia.org/wiki/Sonic_the_Hedgehog_2_(film)) with Knuckles in it, Sonic the Hedgehog 2, the live action, it was so good, man. He kind of stole the show a little bit.
 
 He did. Well, between, I would say between the Knuckles, like Knuckles showing up and then Tails also, like it was just so endearing to kind of have like all three parts of the main Sonic Heroes team kind of like.
 
@@ -344,7 +344,7 @@ No, not that Sonic OVA. The other Sonic OVA. You guys like seeing anime on the b
 
 I love seeing anime on the big screen. Of course I do Nick.
 
-So this week was like packed with news about anime coming to the big screen. We had the Demon Slayer World Tour kicked off. We had, you see Channing Tatum went to the New York.
+So this week was like packed with news about anime coming to the big screen. We had the [Demon Slayer World Tour](https://demonslayer-anime.com/worldtour2024/) kicked off. We had, you see Channing Tatum went to the New York.
 
 I really wanna get him on the show.
 
@@ -358,7 +358,7 @@ He was wearing like a Tanjiro.
 
 I would believe it, yeah.
 
-So the Demon Slayer World Tour kicked off, Tatsuki Fujimoto's, who created Chainsaw Man, his manga Lookback, which is tonally, completely different than Chainsaw Man. It's very good, it's getting adapted into a movie, so that's exciting. But Spy Family, Code White, which is an original story in the Spy Family world, where the forgers are going on a vacation on a train.
+So the Demon Slayer World Tour kicked off, [Tatsuki Fujimoto's](https://en.wikipedia.org/wiki/Tatsuki_Fujimoto), who created [Chainsaw Man](https://en.wikipedia.org/wiki/Chainsaw_Man), his manga [Look Back](https://en.wikipedia.org/wiki/Look_Back_(manga)), which is tonally, completely different than Chainsaw Man. It's very good, it's getting adapted into a movie, so that's exciting. But [Spy Family, Code White](https://en.wikipedia.org/wiki/Spy_×_Family_Code:_White), which is an original story in the Spy Family world, where the forgers are going on a vacation on a train.
 
 It's gonna be adorable. It's gonna be so cute.
 
@@ -368,7 +368,7 @@ I love an original movie.
 
 You'll just have to go see it. I think it's great, because just in general, the title is such an endearing title, and it's so fun.
 
-So for those who are listening or watching and don't know Spy Family yet, first of all, get on it, but give me a quick breakdown of what to expect. What is Spy Family about?
+So for those who are listening or watching and don't know [Spy Family](https://en.wikipedia.org/wiki/Spy_×_Family) yet, first of all, get on it, but give me a quick breakdown of what to expect. What is Spy Family about?
 
 It's the best, funniest setup dynamic that I've seen in a long time. It's a spy, an assassin, and a telepath who they're all hiding their identities from each other, and each has an ulterior motive for why they're a part of this family that they've kind of put together. Anya wants just to have a family.
 
@@ -404,7 +404,9 @@ And I'm really excited to see the forgers on the big screen. I will be seated. W
 
 I'm sat.
 
-I am sat. So Dragon Ball Z, Reese's Puffs.
+I am sat. 
+
+So [Dragon Ball Z](https://en.wikipedia.org/wiki/Dragon_Ball_Z), Reese's Puffs.
 
 Reese's Puffs, Reese's Puffs, peanut butter chocolate flavor.
 
@@ -500,6 +502,8 @@ Some of mine are pretty universal in the monster collecting craze. But LeA, your
 
 We will be right back with that.
 
+## Anime Origin Stories
+
 Let's go.
 
 And we are back, it's time to reveal our anime origin stories. I mentioned before the break that my introduction to anime is a little universal. I don't want to say I'm not unique.
@@ -508,7 +512,9 @@ I feel special sometimes. Thanks. I'm a Chase variant.
 
 He's the holographic that you hope is in the back of your card pack.
 
-But I definitely came up during the time of the monster collecting craze. Obviously, Pokemon is the big one. Digimon, which I love the Digimon anime in a way that I don't love any of the other monster collecting anime.
+### Nicholas 
+
+But I definitely came up during the time of the monster collecting craze. Obviously, [Pokemon](https://en.wikipedia.org/wiki/Pokémon) is the big one. [Digimon](https://en.wikipedia.org/wiki/Digimon), which I love the Digimon anime in a way that I don't love any of the other monster collecting anime.
 
 I watch the Digimon anime again every three years, the first three seasons, and they hold up.
 
@@ -518,15 +524,15 @@ I know. I'm trying not to think about the number because I don't want to feel li
 
 Oh, dude, between that and Pokemon, we're just old.
 
-But also Monster Rancher.
+But also [Monster Rancher](https://en.wikipedia.org/wiki/Monster_Rancher).
 
 Yeah, oh, man, trying to get the CDs to get the monsters.
 
-Yep, yep. Hamtaro. Any Hamtaro fans?
+Yep, yep. [Hamtaro](https://en.wikipedia.org/wiki/Hamtaro). Any Hamtaro fans?
 
 Little hamster, big adventure. If we work together, it's much better. Hamtaro, all your dreams will come true.
 
-Bought a Hamtaro DVD not that long ago. Anyway, Cubix, Robots Forever.
+Bought a Hamtaro DVD not that long ago. Anyway, [Cubix, Robots Forever](https://en.wikipedia.org/wiki/Cubix).
 
 I love Cubix, bro.
 
@@ -538,11 +544,11 @@ But it's there.
 
 Yeah, it's around. Yeah, it's there.
 
-Metabots. You Metabots?
+[Medabots](https://en.wikipedia.org/wiki/Medabots). You Medabots?
 
-Yes, love Metabots, bro. It's so good.
+Yes, love Medabots, bro. It's so good.
 
-And then of course, Dragon Ball Z. It's very important to my childhood. I drew a stupid amount of OCs that if you guys bully me enough, I may show on the show sometime.
+And then of course, [Dragon Ball Z](https://en.wikipedia.org/wiki/Dragon_Ball_Z). It's very important to my childhood. I drew a stupid amount of OCs that if you guys bully me enough, I may show on the show sometime.
 
 And also, do you all remember when Shonen Jump print was publishing in English? Yes. It was monthly.
 
@@ -569,6 +575,8 @@ I mean, the costumes are weird, but the music was great and I was five, six year
 Yeah. No, I feel you, man. That was a dark time.
 
 What about you all? What are your anime origin stories?
+
+### LeAlec
 
 Well, I guess I'll go because I guess we have to save LeA's traumatic anime stories.
 

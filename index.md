@@ -16,4 +16,4 @@ Thanks
 --------
 # [List of Episodes](Episodes/episode_list.md)
 
-# [List of Gateways/Guests](Gateways-Guests/gateway_guest_list.md)
+# [List of Gateways/Guests](Gateways-Guests/gateway_list.md)
