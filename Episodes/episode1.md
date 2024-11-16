@@ -1,580 +1,80 @@
 # Introduction
-Coming to you from Crunchyroll HQ, this is The Anime Effect. Each week, we bring you the latest news and views from the shows you love. It's pop culture through an anime lens.
-
-Today, we have a lot to discuss. We've got the 2024 Anime Awards coming up with more presenters and performers announced this week. And a really awesome anime movie is coming to theaters here pretty soon.
-
-Oh, yeah, it is.
-
-It's a good time to be an anime fan, y'all. Welcome to the very first episode. We'll be talking about all this and more to see just how powerful the effect of anime really is.
 
 ## Introducing the Hosts
 
-I'm your host, Nick Friedman.
+[Attack on Titan](https://en.wikipedia.org/wiki/Attack_on_Titan).
 
-It's me, LeAlec Murray.
-
-And I'm Leah President.
-
-Welcome to the very first episode.
-
-I feel like at some point we should be live from, like we should just do a whole live video from. We should just try it out.
-
-But we're not live.
-
-An undisclosed location.
-
-No, we're not.
-
-The show is not live. This is not happening right now.
-
-We have time to make mistakes and you will never see that.
-
-Our editors are very good. I mean, should we introduce everybody now?
-What's the best way to break the ice here?
-
-Why should I care?
-
-Yeah.
-
-I come from the world of journalism, where we ask questions, where we learn everything, do lots of research. Getting to do that in anime is really cool.
-
-Uncle must do research.
-
-A curious mind.
-
-I just thought of a beautiful mind when you said that. That's like picture of Russell Crowe in my head.
-
-Of course.
-
-That was Russell Crowe, right?
-
-I believe so. Yeah, yeah, yeah.
-
-We're getting confirmation.
-
-No, no, I come from the world of journalism to join the anime industry and talk about amazing cartoons, which is really why we're all here at the end of the day. What about y'all?
-
-It's a great segue because I also come from news, which is great. I come from broadcast news, whereas Nick comes from print.
-
-Print and digital.
-
-Yeah, we've got like a great mix of that, and I'm essentially living out my childhood dream of being able to work in anime and talk about anime and look at anime all the time, every day.
-
-Look around though.
-
-Um, so yeah. I'm also like, I'm gonna be the one which, let's just get it out of the way because it's gonna come up a ton. I'm basically the one who is going to find every reason whatsoever to bring up [Attack on Titan](https://en.wikipedia.org/wiki/Attack_on_Titan).
-
-They will.
-
-I am obsessed with it, I've got a tattoo of it, my desk is covered in AOT figures. I interviewed [Isayama](https://en.wikipedia.org/wiki/Hajime_Isayama).
-
-Pause it, wait, we gotta pause at that last part. What was that?
-
-I interviewed Isayama and I was so nervous.
-
-Isayama, the creator of Attack on Titan.
-
-And it was the highlight of my life and I'm still riding that wave, baby.
-
-I think the only Attack on Titan thing I have on my desk is Peek, Kart Titan, best girl.
-
-Yeah, best girl.
-
-I'm not as high as Attack on Titan as you guys are, but we can discuss that at a later date.
-
-All right, yeah.
-
-I'll indoctrinate you, eventually. But yeah, what about you?
-
-Last, but certainly not least, I'm LeAlec. I do not come from the news world, but I come from the radio world. Do some DJing, work for some record labels, all to just circle back around and work in animation, which is something that I wanted to do probably since I was a kid.
-
-Every videotape that I owned in my library as a kid was like the orange Nickelodeon tapes or like Transformers or like Power Rangers, stuff like that. And I would always carry it around with me because like if there was no animation on TV, I had a tape. You got a VCR.
-
-Like I'd go to the babysitter's house and we like, don't even, we're not watching game shows. I got it.
-
-I brought my own stuff.
-
-I got Rugrats on VHS. Baby Lealec with like a suitcase like. No, no, no, you're no, like I literally had a box of VHS tapes that I carried around with me.
-
-Those things were sturdy, man. As long as you didn't touch the film.
-
-Yeah, bro. Like you could, you could VHS forever.
-
-I'm pretty sure I had a loose VHS copy of Digimon the movie in a box in my parents' garage for 25 years. And it works perfectly.
-
-I'm sure it does. If I remember correctly, my mom still has like half of my VHS collection. And I'm like, I bet you like every single tape in there works like right now, except for maybe like Lion King, because I like that one so much.
-
-I guess that's a good segue into like how much I obsess over physical media.
-
-Oh dude, yeah.
-
-I mean, Nintendo-
-
-It's only gotten worse as I've gotten older. Has that happened to you guys too?
-
-Well, you know, you get older, like you're like, wow, I have space to fill with shelves of stuff that I like to stare at.
-
-And I've seen your shelves.
-
-I mean, we've got Nintendo games, specifically Nintendo 3DS and DS. Long live the dual screen handheld.
-
-Yeah. Bring back Nintendogs.
-
-I'm gonna talk about DS games way more than I probably should on an anime podcast. Nintendogs should come back. It should.
-
-This is exactly what it's gonna be. We're just gonna keep going off the rails talking about like random stuff that we love.
-
-Speaking of the rails, you guys wanna get back on them?
-
-Yeah, we should.
-
-We are so happy you guys are all here. We're so excited to have you listen to us say nonsense for an hour every week, but yeah.
-
-We got some really cool stuff coming for you guys throughout the season too. So I'm happy to be here with you guys.
-
-I'm happy to be here with you guys.
-
-I'm happy for everybody to listen. It's gonna be chaotic and I love it.
-
-All right, when we get back, we're gonna talk anime awards updates and get into the news of the week. We'll see you there.
+[Isayama](https://en.wikipedia.org/wiki/Hajime_Isayama).
 
 ## News
 
-Welcome back, everybody. Now that you've gotten to know all of us and our various idiosyncrasies. Not yet.
+[Hiroyuki Sawano](https://en.wikipedia.org/wiki/Hiroyuki_Sawano) 
 
-Stares at me.
+[Kohta Yamamoto](https://en.wikipedia.org/wiki/Kohta_Yamamoto) 
 
-We're not. Actually, you're gonna find out more in a bit, but now what we're gonna do is we're gonna crack into some news. First, we're gonna start with some anime awards updates.
+[Yoasobi](https://en.wikipedia.org/wiki/Yoasobi).
 
-Then we're gonna get into some gaming news. The news we're gonna do every week. It's gonna be everything that is important to anime culture, pop culture, and anything that is adjacent to.
+[Shing02](https://en.wikipedia.org/wiki/Shing02) 
 
-Yes, I'm gonna tell you all about the hopeful 4K re-release of Tron Legacy that happens.
+[battlecry](https://open.spotify.com/track/7hzm68uGbxcvQY9FAtpk2s?si=efad5fa8354e462e) 
 
-I'm right there with you.
+[Samurai Champloo](https://en.wikipedia.org/wiki/Samurai_Champloo)
 
-Oh wait, isn't that anime podcast?
+### Video Games
 
-You have to let it go, Nick. You have to let it go. I can.
+[Mario Kart 8 Deluxe](https://www.nintendo.com/us/store/products/mario-kart-8-deluxe-switch/?srsltid=AfmBOooBVkZLlFd4w_xdFrlxh8Gif0ptVCj3B56PYfY5uZZEz_dBPrcV)
 
-There was an interview a couple weeks ago where the director said it exists. But where's the Tron anime though? Oh dude, Tron anime would go pretty hard.
+[Double Dash](https://en.wikipedia.org/wiki/Mario_Kart:_Double_Dash) 
 
-Thank you.
+[Pikmin](https://en.wikipedia.org/wiki/Pikmin) 
 
-All right, first big update of the week. The anime awards are in a couple weeks. So, we wanna check in at the beginning of every news segment to give you a little bit of update on what's coming.
+[Super Mario Brothers](https://en.wikipedia.org/wiki/Super_Mario_Bros.) 
 
-They're live from Tokyo, Japan by the way. It's gonna be amazing. They just announced some new performers and presenters joining the live show for March 2nd.
+[Mario teaches typing](https://en.wikipedia.org/wiki/Mario_Teaches_Typing) 
 
-Any guesses on who might be showing up?
+[Strikers](https://en.wikipedia.org/wiki/Super_Mario_Strikers)
 
-Actually no, man. I don't have any, like.
+[Mario Superstar Baseball](https://en.wikipedia.org/wiki/Mario_Superstar_Baseball)
 
-Not one.
+### Movies and Shows
 
-Not one? Not one.
+[Knuckles](https://www.youtube.com/watch?v=1kETt59yn6A)
 
-Dallas Cowboy, Demarcus Lawrence will be there.
+[Sonic and Knuckles](https://en.wikipedia.org/wiki/Sonic_%26_Knuckles)
 
-Ooh, represent. Representing TX.
+[Sonic 2](https://en.wikipedia.org/wiki/Sonic_the_Hedgehog_2_(film)) 
 
-Bressler, Mercedes Vernado.
+[Demon Slayer World Tour](https://demonslayer-anime.com/worldtour2024/)
 
-Oh, man.
+[Tatsuki Fujimoto's](https://en.wikipedia.org/wiki/Tatsuki_Fujimoto)
 
-Sasha Banks.
+[Chainsaw Man](https://en.wikipedia.org/wiki/Chainsaw_Man)
 
-Yeah, it's Monet time, finally.
+[Look Back](https://en.wikipedia.org/wiki/Look_Back_(manga))
 
-And the performances, I think this is one of the pieces I'm really excited about. We've got [Hiroyuki Sawano](https://en.wikipedia.org/wiki/Hiroyuki_Sawano) and [Kohta Yamamoto](https://en.wikipedia.org/wiki/Kohta_Yamamoto) performing the Anime Awards theme song.
+[Spy Family, Code White](https://en.wikipedia.org/wiki/Spy_×_Family_Code:_White)
 
-Yes.
+[Spy Family](https://en.wikipedia.org/wiki/Spy_×_Family)
 
-We've got [Yoasobi](https://en.wikipedia.org/wiki/Yoasobi).
-
-Yoasobi.
-
-Ahead of their Coachella. Oh, man. And [Shing02](https://en.wikipedia.org/wiki/Shing02) doing [battlecry](https://open.spotify.com/track/7hzm68uGbxcvQY9FAtpk2s?si=efad5fa8354e462e) from [Samurai Champloo](https://en.wikipedia.org/wiki/Samurai_Champloo) to celebrate the anniversary.
-
-It's gonna be a special night.
-
-They also revealed how you can watch. It's gonna be on YouTube. It's gonna be on Twitch.
-
-It'll be streaming live starting at 6 p.m. Japan Standard Time. And yeah, it's gonna be great.
-
-I'm pretty excited. So stay tuned for more updates as we head toward the show and even more afterwards.
-
-Yeah, we'll talk about this later, but the award show is stacked this year. It's so incredibly stacked this year.
-
-It's gonna be a fierce competition. And we were talking about this before, but I think for anime of the year, any of the noms could take it. I would believe any of them could take it.
-
-None of it is clear cut, like at all. Like none of the categories, which is insane to me.
-
-I'm super amped. I can't wait.
-
-Speaking of being amped, this is a horrible segue. We're gonna do really bad segues. I'm gonna be like, speaking of Super Mario.
-
-We'll get better, you guys.
-
-Nintendo just revealed the best-selling Mario video game of all time, [Mario Kart 8 Deluxe](https://www.nintendo.com/us/store/products/mario-kart-8-deluxe-switch/?srsltid=AfmBOooBVkZLlFd4w_xdFrlxh8Gif0ptVCj3B56PYfY5uZZEz_dBPrcV). Mario Kart 8 first came out on the Wii U.
-
-It's been running for like a decade.
-
-Then it came out again on the Switch as Deluxe. And then they added like three Mario Kart games worth of content to it on the Switch.
-
-Which is crazy.
-
-Yeah, there is no contest. Like the greatest Mario Kart game of all time is Mario Kart 8 Deluxe.
-
-I mean, [Double Dash](https://en.wikipedia.org/wiki/Mario_Kart:_Double_Dash) is a very close second, but yeah, like it's absolutely insane how they've been able to keep this game alive for so long.
-
-And Nintendo has been like really hitting it out of the park with like million plus sellers on the Switch, which as someone who loves first party Nintendo games, it's really exciting to see like series like [Pikmin](https://en.wikipedia.org/wiki/Pikmin) finally break a mainstream threshold. But specifically to Mario, Mario Kart 8 Deluxe dethrones the original [Super Mario Brothers](https://en.wikipedia.org/wiki/Super_Mario_Bros.) game from 1985.
-
-That's actually surprising. Essentially, whenever I play Mario Kart, I just vibe like, I don't care if I lose. Everybody's drifting, I still don't know how to drift.
-
-Like, let's go.
-
-No, we get super competitive about Mario Kart.
-
-You got to kind of straddle the left and right buttons while you're wiggling the stick. That's kind of how you.
-
-I'm here for vibes and friendship. So maybe you can show me how.
-
-Yeah.
-
-You're not here for a blue cells ruining lives?
-
-No, man. I feel bad. Like I'll just withhold the shell because I'm like, my friends are firing me, bro.
-
-Like I can't.
-
-No, there's no friendship in Mario Kart.
-
-That's true. You check it all at the door. Check it all at the starting line.
-
-Yep.
-
-That's going to end some friendships.
-
-All right. Question for you all. What do you guys think is the least selling Mario game of all time?
-
-And it's not [Mario teaches typing](https://en.wikipedia.org/wiki/Mario_Teaches_Typing) because I don't think it.
-
-[Strikers](https://en.wikipedia.org/wiki/Super_Mario_Strikers) maybe? I mean, I love Strikers.
-
-That would be a shame because Strikers is a great game.
-
-Strikers is amazing.
-
-It's not Strikers.
-
-Really?
-
-Yeah.
-
-Interesting.
-
-You're close though.
-
-Okay.
-
-It's also on the GameCube. It's also a sports game.
-
-I don't know. What is it?
-
-Mario Baseball, [Mario Superstar Baseball](https://en.wikipedia.org/wiki/Mario_Superstar_Baseball), which is a, it's a great game.
-
-It's a, no, it's a phenomenal game. I wouldn't have guessed that one. Well.
-
-I mean, all these games are good on the, I mean, GameCube had a massive library.
-
-Still need the Mario basketball.
-
-So keeping it in the early nineties on the other side of the console war. Which I'll see the trailer for [Knuckles](https://www.youtube.com/watch?v=1kETt59yn6A).
-
-Oh, listen, listen. Good old Knuckles. Listen.
-
-Hold on, hold on.
-
-Listen. Knuckles is that dude.
-
-Cut it there, cut it there.
-
-Just that, just that. No, he is.
-
-I have such an emotional attachment to Knuckles as a character. So like when I was growing up, my cousin and her younger brother used to babysit me and her brother had a Sega, the only game that I would play that you could get me to shut up for. For hours.
-
-[Sonic and Knuckles](https://en.wikipedia.org/wiki/Sonic_%26_Knuckles).
-
-With Sonic and Knuckles. So Knuckles has been my guy forever. The fact that Edris Elba is the voice of Knuckles makes him double my guy forever.
-
-So when they were like, we're doing a Knuckles show, I was like, you say less. I don't care how much money I got. I'm already paying for Paramount.
-
-I guess I'll go ahead and just slide you that extra five bucks so I can add show time. So I'll just have everything. But no, man, I am super, super excited for this.
-
-I was a little hesitant at first because it's like, you know, everyone's trying to do these like massive cinematic universes. But if you saw [Sonic 2](https://en.wikipedia.org/wiki/Sonic_the_Hedgehog_2_(film)) with Knuckles in it, Sonic the Hedgehog 2, the live action, it was so good, man. He kind of stole the show a little bit.
-
-He did. Well, between, I would say between the Knuckles, like Knuckles showing up and then Tails also, like it was just so endearing to kind of have like all three parts of the main Sonic Heroes team kind of like.
-
-Yeah, like let's just keep it fun.
-
-Honestly, it's super fun and I appreciate it.
-
-Yeah, and then, you know, Jim Carrey just basically being like, I'm at the end of my career. I'm just gonna be Eggman for the rest of it. Deal with it.
-
-And we're like, yeah, bro.
-
-And he gives one of the like best like villainous comedic performances. Like that dude just heat shoes up the scene.
-
-He is so good.
-
-So Knuckles, which I think it's just called Knuckles.
-
-Yeah, it's just Knuckles.
-
-Is set between Sonic the Hedgehog 2 and the upcoming Sonic the Hedgehog 3 movie. With Shadow. And it hits April 26th on Paramount.
-
-So, I mean, I'm definitely gonna be watching it. I think it's like six episodes.
-
-Yeah, it's gonna be a mini. I think they said they're gonna do another mini.
-
-It's an OVA.
-
-It's an OVA. It's the Sonic OVA.
-
-No, not that Sonic OVA. The other Sonic OVA. You guys like seeing anime on the big screen?
-
-I love seeing anime on the big screen. Of course I do Nick.
-
-So this week was like packed with news about anime coming to the big screen. We had the [Demon Slayer World Tour](https://demonslayer-anime.com/worldtour2024/) kicked off. We had, you see Channing Tatum went to the New York.
-
-I really wanna get him on the show.
-
-I did not know that he was an anime, or I guess maybe his daughter is?
-
-I think he is too though.
-
-Wouldn't he be wearing like a Tanjiro?
-
-He was wearing like a Tanjiro.
-
-I would believe it, yeah.
-
-So the Demon Slayer World Tour kicked off, [Tatsuki Fujimoto's](https://en.wikipedia.org/wiki/Tatsuki_Fujimoto), who created [Chainsaw Man](https://en.wikipedia.org/wiki/Chainsaw_Man), his manga [Look Back](https://en.wikipedia.org/wiki/Look_Back_(manga)), which is tonally, completely different than Chainsaw Man. It's very good, it's getting adapted into a movie, so that's exciting. But [Spy Family, Code White](https://en.wikipedia.org/wiki/Spy_×_Family_Code:_White), which is an original story in the Spy Family world, where the forgers are going on a vacation on a train.
-
-It's gonna be adorable. It's gonna be so cute.
-
-I'm part of the contingent that loves when the mangaka's come back and be like, okay, I wanna expand on the story, but I'm not gonna give you any physical material for it.
-
-I love an original movie.
-
-You'll just have to go see it. I think it's great, because just in general, the title is such an endearing title, and it's so fun.
-
-So for those who are listening or watching and don't know [Spy Family](https://en.wikipedia.org/wiki/Spy_×_Family) yet, first of all, get on it, but give me a quick breakdown of what to expect. What is Spy Family about?
-
-It's the best, funniest setup dynamic that I've seen in a long time. It's a spy, an assassin, and a telepath who they're all hiding their identities from each other, and each has an ulterior motive for why they're a part of this family that they've kind of put together. Anya wants just to have a family.
-
-Anya's the telepath.
-
-Yeah, Anya's the telepath, the child, the daughter.
-
-So cute.
-
-She's so adorable.
-
-And she knows the secrets of both.
-
-She knows everybody's secrets.
-
-Yeah, because she can read everyone's minds. So it's just so cute. The dynamic and the setup is, it's adorable.
-
-Everyone who I've ever shown it to instantly loves it. It's, yeah, it's a new classic.
-
-I think it's also funny that there's Anya who's the telepath, but then she has the dog Bond.
-
-The dog is like, he has future sight.
-
-Hopefully this isn't a spoiler.
-
-It's pretty early in season one, I feel like. It's been out for a while. Just watch it.
-
-If you're looking for something that's comedic, but still has stakes and is also just super endearing.
-
-It has heart.
-
-And I'm really excited to see the forgers on the big screen. I will be seated. We should go see that together.
-
-I'm sat.
-
-I am sat. 
-
-So [Dragon Ball Z](https://en.wikipedia.org/wiki/Dragon_Ball_Z), Reese's Puffs.
-
-Reese's Puffs, Reese's Puffs, peanut butter chocolate flavor.
-
-I haven't thought about that song in at least a decade. That's amazing. Thank you.
-
-Well, if you're browsing the grocery aisle and get some Reese's Puffs after hearing the beautiful rendition of the song.
-
-It's funny, I actually just did like the Reese's Puffs.
-
-Oh, okay.
-
-Did you see?
-
-Dragon Ball Z is collaborating with Reese's Puffs.
-
-I didn't see the box though.
-
-I'm kind of disappointed. If you flip it around, all of them, like if you collect all the boxes, they make like one big image.
-
-They have all the like-
-
-Just the wraparound cover.
-
-It's like kind of the main Z fighters. So, Goku, Vegeta, Piccolo, Trunks, and then Selfreeza and Boo. And it's just like, I said I love physical media.
-
-Like I can imagine myself just having like a wall with just empty Reese's Puffs boxes. I still have the Super Mario amiibo cereal from like eight years ago or whenever that happened.
-
-Oh man, yeah, that was a quick flash.
-
-Unopened though.
-
-Yeah, no, absolutely not.
-
-I mean, they're probably fine. They're already dried out.
-
-They probably taste like stale cardboard, dog. Don't do it. Please, don't do it to me, bro.
-
-It's an amiibo, I have to have it. All right, what's your favorite?
-
-Cereal?
-
-Oh, like dessert for breakfast. Which is what cereal is.
-
-Is that a dessert I know?
-
-What's your favorite cereal?
-
-Oh, you said dessert for breakfast.
-
-That's because that's what cereal is.
-
-Essentially, yeah.
-
-Then ask that.
-
-Let's see, maybe like...
-
-You look really serious right now.
-
-This is a serious question.
-
-Maybe.
-
-This is a question for the ages. Like the music just going off is...
-
-If you say tricks.
-
-I wouldn't say tricks. You know tricks are for kids. Grow up.
-
-I think probably, I'm gonna have to say like a fruity pebble. Out of all cereal, that's the one with the best cereal milk.
-
-That's a good point. What do you got?
-
-Oh man. One A and one B for me is gonna be Cocoa Puffs or Reese's Puffs. When you talk cereal milk, nothing beats Cocoa Puffs cereal milk.
-
-Yeah, let's go into the milk.
-
-See, I will give you any like cocoa blank cereal. It's like Cocoa Pebbles I will eat, but for me, if you go like one step deeper, to the Reese's Puffs, to the Oreos, to the Zebra Cake cereal, I'm like, that's not cereal anymore. You have made-
-
-Hostess did like a whole like-
-
-Yeah, but it's like, once you cross that line, you have made gross dessert milk. For me, I gotta go with Alphabits.
-
-Oh, man, that cereal doesn't even exist anymore, dog. Alphabits.
-
-You're actually onto something.
-
-That cereal's been discontinued for like 20 years, dog. And you were just like, nah, I'm gonna dig this up.
-
-The Alphabits are lying in their grave and I'm like, come on, we got work to do. But Dragon Ball Z Reese's Puffs coming to the store shelves near you. If you're like me, Dragon Ball was probably one of the first anime you've ever watched, which I'm sure I'm not alone in, but coming up on our main story, we're gonna share our anime origin stories.
-
-Some of mine are pretty universal in the monster collecting craze. But LeA, your introduction to anime was a little more intense. I can't wait for everyone to hear about it.
-
-We will be right back with that.
+[Dragon Ball Z](https://en.wikipedia.org/wiki/Dragon_Ball_Z)
 
 ## Anime Origin Stories
 
-Let's go.
-
-And we are back, it's time to reveal our anime origin stories. I mentioned before the break that my introduction to anime is a little universal. I don't want to say I'm not unique.
-
-I feel special sometimes. Thanks. I'm a Chase variant.
-
-He's the holographic that you hope is in the back of your card pack.
-
 ### Nicholas 
 
-But I definitely came up during the time of the monster collecting craze. Obviously, [Pokemon](https://en.wikipedia.org/wiki/Pokémon) is the big one. [Digimon](https://en.wikipedia.org/wiki/Digimon), which I love the Digimon anime in a way that I don't love any of the other monster collecting anime.
+[Pokemon](https://en.wikipedia.org/wiki/Pokémon)
 
-I watch the Digimon anime again every three years, the first three seasons, and they hold up.
+[Digimon](https://en.wikipedia.org/wiki/Digimon)
 
-Are you excited? It's the 25th anniversary of Digimon.
+[Monster Rancher](https://en.wikipedia.org/wiki/Monster_Rancher)
 
-I know. I'm trying not to think about the number because I don't want to feel like I'm 175 years old.
+[Hamtaro](https://en.wikipedia.org/wiki/Hamtaro)
 
-Oh, dude, between that and Pokemon, we're just old.
+[Cubix, Robots Forever](https://en.wikipedia.org/wiki/Cubix)
 
-But also [Monster Rancher](https://en.wikipedia.org/wiki/Monster_Rancher).
+[Medabots](https://en.wikipedia.org/wiki/Medabots)
 
-Yeah, oh, man, trying to get the CDs to get the monsters.
-
-Yep, yep. [Hamtaro](https://en.wikipedia.org/wiki/Hamtaro). Any Hamtaro fans?
-
-Little hamster, big adventure. If we work together, it's much better. Hamtaro, all your dreams will come true.
-
-Bought a Hamtaro DVD not that long ago. Anyway, [Cubix, Robots Forever](https://en.wikipedia.org/wiki/Cubix).
-
-I love Cubix, bro.
-
-I always have to check to make sure Cubix is on my anime list, that it's trackable because in my head, I'm like, no, this was some like-
-
-Fever dream.
-
-But it's there.
-
-Yeah, it's around. Yeah, it's there.
-
-[Medabots](https://en.wikipedia.org/wiki/Medabots). You Medabots?
-
-Yes, love Medabots, bro. It's so good.
-
-And then of course, [Dragon Ball Z](https://en.wikipedia.org/wiki/Dragon_Ball_Z). It's very important to my childhood. I drew a stupid amount of OCs that if you guys bully me enough, I may show on the show sometime.
-
-And also, do you all remember when Shonen Jump print was publishing in English? Yes. It was monthly.
-
-It was so good. Yeah. It was monthly Shonen Jump here.
-
-But I remember actually going to the comic shop or the bookstore and actually getting monthly Shonen when it was here. It was so good.
-
-I used to just save it and there were just big stacks up in my room and they were my treasures, bro. It's what you can afford to get your anime hit when you're a kid with... I didn't even get an.
-
-Allowance. I was doing chores and stuff. There was a very quickly defunct live stage production of Pokemon called Pokemon Live.
-
-Did not last long at all.
-
-It's pretty aggressively upsetting to look back on.
-
-It's kind of like the Ninja Turtles stage play.
-
-Yeah, but I love it. The soundtrack is incredible, by the way. If you get a chance to listen to it, I don't know if there's any official way to watch or listen to Pokemon Live.
-
-What was so traumatizing about it?
-
-I mean, the costumes are weird, but the music was great and I was five, six years old. I remember I had one of those lightsabers you get at Disney World but it has a Pokeball at the top and it lights up.
-
-Yeah. No, I feel you, man. That was a dark time.
-
-What about you all? What are your anime origin stories?
+[Dragon Ball Z](https://en.wikipedia.org/wiki/Dragon_Ball_Z)
 
 ### LeAlec
 
