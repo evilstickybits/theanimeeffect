@@ -8,7 +8,7 @@ This project is dedicated to solving that. The goal is to create a resource that
 
 ## Project Scope
 
-I’m still considering the approach: I may include full episode transcripts or focus on timestamped sections with the titles and links only. I also welcome contributions from other fans who want to help identify shows or provide accurate links.
+I’m still considering the approach: I may include full episode transcripts or focus on timestamped sections with the titles and links only. [I also welcome contributions from other fans who want to help identify shows or provide accurate links. Heck if you want to take a crack at the newer episodes, please do!](https://github.com/evilstickybits/theanimeeffect).
 
 Thank you for your interest in this project, and I hope it helps you enjoy the world of anime even more!
 
