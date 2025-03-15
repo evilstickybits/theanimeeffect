@@ -1,5 +1,9 @@
+# Preamble
+
 I really would love to encourage more American comic, Western comic fans to try manga because there's so many great titles out there. There's so many, any genre you can think of. There's several great series.
 And so I try to put those influences in my work. And so, yeah, Naoki Urasawa was probably, probably is my number one artistic influence now, just through his character acting, storytelling capabilities. That's what informs my work the most.
+
+# Introduction
 Coming to you from Crunchyroll HQ, this is The Anime Effect, where each week we bring you interviews with amazing people from all across the world of anime, and really just like nerd culture in general. From directors to actors, artists and more, to discuss their work and their anime favorites. It's pop culture with an anime lens.
 Today, we are sharing Leah and I's conversation with Joe Eisma.
 He's an Eisner-nominated artist and co-creator of New York Times Best Seller Morning Glories. You may have also seen his work on Star Trek, Archie, The Flash.
@@ -320,7 +324,7 @@ Kill la Kill is a go.
 
 So yeah, sorry, that's a lot of recommendations. Like Alex said, pick and choose what interests you because they're all very different from each other. But yeah, what about you, Lee?
 
-## Lee
+## Le
 So I want to start. I got two original ones in here. Two that I was, one, that was a Nick recommendation when we first started the show.
 
 It's [Bocchi the Rock](https://en.wikipedia.org/wiki/Bocchi_the_Rock!). The music, one, amazing, amazing, amazing, amazing. But also, it's the slice of life, high school vibe. Like it takes you on a trip that you probably aren't ready for because not only do you really get in tune with the main characters, but then I feel like when you watch the show, you also find out a little bit about yourself. Oh, man, that's how I saw it. I'm watching the show, I was like, I was like that in high school. But it's a great series. It's a great story about perseverance, believing in yourself and just being out there and exploring your dreams. Another original here, [Licorice Recoil](https://en.wikipedia.org/wiki/Lycoris_Recoil).
